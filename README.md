@@ -22,4 +22,4 @@ I’m open to working on open-source projects, hackathons, and innovative ideas�
 
 ⚡ Fun Fact
 
-[Something fun about you! Maybe a cool project, an unexpected hobby, or a quirky coding-related fact.]
+I am also a marathoner and yoga enthusiast ⚡
